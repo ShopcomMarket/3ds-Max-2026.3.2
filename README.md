@@ -12,7 +12,7 @@ https://www.shopcom.tn/product/3ds-max-2026-3-2/
 Product Price : 4,683 $
 
 Payment :
-https://www.shopcom.tn/payment
+https://www.shopcom.tn/payments
 
 Website :
 https://www.shopcom.tn
